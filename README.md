@@ -1,0 +1,6 @@
+- 👋 I’m @bidjadraft
+- 👀 Content creator
+- 🎨 Design and podcasting
+- 🌱 Learning coding
+- 📫 Reach me on Telegram
+- 😄 Pronouns: He
